@@ -1,4 +1,4 @@
-# 300 bài code thiếu nhi mình sẽ giải
+# wellsome i guesssss?
 ## bắt đầu vào ngày 16 tháng 9 năm 2026
 
 
